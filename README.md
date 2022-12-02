@@ -1,3 +1,5 @@
+ ***“Artificial Intelligence began with an ancient wish to forge the gods.” ~ Pamela McCorduck***
+
 [![@osw282's Holopin board](https://holopin.me/osw282)](https://holopin.io/@osw282)
 
 <!--
